@@ -1,1 +1,1 @@
-My readme is up to date now
+Im a software enginnering student
